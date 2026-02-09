@@ -35,7 +35,7 @@ Con más de 10 años de experiencia en el mercado laboral TI, he evolucionado de
 
 ## 📫 Contacto
 *  **LinkedIn:** [linkedin.com/in/andresjimzs/](https://linkedin.com/in/andresjimzs/)
-*  *  **Email:** andres_jimzs@live.com 
+*  **Email:** andres_jimzs@live.com 
 
 ---
 
